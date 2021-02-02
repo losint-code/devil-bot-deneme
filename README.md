@@ -1,1 +1,0 @@
-# devil-bot-deneme
